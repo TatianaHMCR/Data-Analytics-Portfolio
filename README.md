@@ -1,4 +1,4 @@
-![](/images/ThomasCottrell3.png)
+
 [My Story](#my-story)
 
 # <a id="#portfolio-introduction"></a>
